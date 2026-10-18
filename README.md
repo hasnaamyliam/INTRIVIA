@@ -10,3 +10,6 @@ INTRIVIA seru bangeeet, walaupun capek tp memorable bgtt. tugas tugasnya juga lu
 
 ## Kesan Pesan Cluster 12 Sejauh Ini
 cluster 12 seru sekaliiiiiii, fasilnya baik banget, tmn tmnnya juga asik bangetttt pokonya gamau pisahhh hahaha
+
+## Harapan Kuliah
+bismillah cumlaude ipk berapapun, langsung kerja di tahun yang sama, bisa lanjut s2 s3
